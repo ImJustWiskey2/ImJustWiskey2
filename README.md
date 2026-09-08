@@ -1,7 +1,10 @@
 I go by Wisk but I also go by Jaden, Chances, Ray, Freakster, PV(Pure Vanilla Cookie) LOVER, Sunlight, Universal! :3
 
-I go by He, They, It and I'm Asexual!
+I go by He, They, It and I'm Gay!
 
+I am a FEMBOY!! AAAAAAAAAAA :3
+
+I LOVE METEOROLOGY AND TORNADOES!
 ---
 
 RBFYI - I am 14, African American (Or black), I have a brother (Minimus Ambus(FireAmber)) and One little sister, I makes freaky jokes so beware!, I make videos, If you dont like me block me (block me as well if you don't like my brother) idgas
